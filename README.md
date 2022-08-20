@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rishikesh pandey
 - 👀 I’m interested in ... AI coding and Ethical hacking
-- 🌱 I’m currently learning ...in 12th class
+- 🌱 I’m currently student at @shri Ramdeobaba collage of engg. and management nagpur..
 - 💞️ I’m looking to collaborate on ...AI 
 - 📫 How to reach me ...on instagram @rishikeshets_tkd1
 
